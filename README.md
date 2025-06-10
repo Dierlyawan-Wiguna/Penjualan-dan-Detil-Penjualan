@@ -1,1 +1,0 @@
-# Penjualan-dan-Detil-Penjualan
